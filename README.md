@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm ABHAY KUMAR</h1>
-<h3 align="center">An inspiring CSE Final-Year Student with excellent problem-solving skills and ability to perform well in a team.</h3>
+<h3 align="center">An inspiring Engineer with excellent problem-solving skills and ability to perform well in a team.</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=abhay121kumar&label=Profile%20views&color=0e75b6&style=flat" alt="abhay121kumar" /> </p>
 
