@@ -17,7 +17,8 @@
 
 - 📫 How to reach me **abhayk74966@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1051k6JDDcHwp-N-2hC72hM7AXNWjn2x6?usp=sharing](https://drive.google.com/drive/folders/1051k6JDDcHwp-N-2hC72hM7AXNWjn2x6?usp=sharing)
+- 📄 Know about my experiences linked let's connect - https://www.linkedin.com/in/abhay-kumar-3a27711a4
+ drive link - [https://drive.google.com/drive/folders/1051k6JDDcHwp-N-2hC72hM7AXNWjn2x6?usp=sharing](https://drive.google.com/drive/folders/1051k6JDDcHwp-N-2hC72hM7AXNWjn2x6?usp=sharing)
 
 - ⚡ Fun fact **I Think, ThereFor I Am.**
 
